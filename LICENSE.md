@@ -1,4 +1,4 @@
-#  
+#  Experience bedwars like never before with bedwars smart Script, the #1 Script. Includes custom skins and aimbot for unbeatable performance.
 
 
 
